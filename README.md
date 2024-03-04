@@ -1,2 +1,0 @@
-# MY GITHUB PROJECT FOR LEARN
-## Details
